@@ -16,6 +16,14 @@ Connect with Me
 Let's connect and discuss NLP, AI, or anything tech-related! You can reach me through:
 
 https://www.linkedin.com/in/tanuj-saini-130b29250/
+
+   
 https://twitter.com/Tanuj0005
+
+
+   
 sainisab264319@gmail.com
+
+
+   
 Happy learning! 📚🚀
